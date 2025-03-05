@@ -34,3 +34,20 @@
 - **poyasnenie№4.docx** — пояснение кода.
 
 Результат: 
+
+
+![image](https://github.com/user-attachments/assets/1d8262ba-47f8-4f63-9db5-8311d4e9d03f)
+
+
+![image](https://github.com/user-attachments/assets/6f5bfb6e-4933-4adb-a1c1-f7b7692aa4ab)
+
+![image](https://github.com/user-attachments/assets/f5de1ecb-80d2-4ad6-9811-c7942c86e0e5)
+
+![image](https://github.com/user-attachments/assets/a3fe0be5-5389-46e1-a479-b6331e415125)
+
+![image](https://github.com/user-attachments/assets/9cc07a37-21d8-431e-8c4b-6ff5daa614f3)
+
+
+![image](https://github.com/user-attachments/assets/2a08328e-e304-40fb-83b0-75b527eae6b8)
+
+
